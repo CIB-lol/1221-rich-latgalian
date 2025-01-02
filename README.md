@@ -1,4 +1,4 @@
-Rich edition
+Vairteigs izdevums
 =========
 
 Roman-à-clef genre handbook which covers matter in just 21 pages (including images) separated into 12 chapters
